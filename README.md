@@ -1,3 +1,8 @@
+# AULA PPZ 2024
+estou estudando haha
+não estou sendo forçado a escrever isso 
+
+
 # Links-de-qulalidade
 oiee
 

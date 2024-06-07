@@ -2,3 +2,7 @@
 oiee
 
 # acho que entendi
+18038108919318
+
+# scratch 
+link ficaria aqui
